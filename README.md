@@ -14,5 +14,4 @@ top channel to learn HTML AND CSS faster  :
 6. [Envato Tuts+](https://www.youtube.com/@envatotuts)
 7. [Codedamn](https://www.youtube.com/@codedamn)
 
-### Note that is not personal try that is from searching 
 
